@@ -1,1 +1,1 @@
-I Share something helpful here in Cyber Security field 😉
+I Share something helpful here in SOC field 😉
